@@ -1,1 +1,0 @@
-# ar_studio_demomhh1sb
